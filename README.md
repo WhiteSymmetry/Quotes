@@ -1,5 +1,4 @@
-# quotes
-Alıntılar
+# Quotes Alıntılar
 
 I cannot always be satisfied with one aspect of my life. I do also have a lack of acceptance. Period of 25 years without a break in my studies I learned both material and spiritual sciences. (IHL: Religious Vocational High School, Electronics, Physics, MSc.: Master of Science in Physics-2001) and Doctor of Philosophy (PhD.) I finished the lessons-2003). I worked as a teacher in various schools and institutions and programmers. I worked as a company manager. I was taught as a lecturer at a university in the years 2010-2014. I teach 4,500 students from all levels of education. I bought official five university courses, we followed informal the course of one university and one institute. I presented papers at the University. National (scientific, newspapers, magazines, TV, websites, books) and it was our international scientific publications.
 
